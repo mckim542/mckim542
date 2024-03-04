@@ -1,5 +1,3 @@
-### mckim542
-
 ### ✨ GitHub Stats
 
 <a href="https://github.com/mckim542">
